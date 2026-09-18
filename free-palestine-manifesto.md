@@ -174,6 +174,61 @@ A truly free Palestine requires:
 
 This manifesto offers a path toward a future where Palestinians live free from occupation, free from extremism, and free from fear — and where Israelis live free from terror, free from political manipulation, and free from existential crisis.
 
+## 8. Prohibited Organizations and External Actors
+
+The Free Palestine movement recognizes that certain international actors have contributed to the escalation, politicization, or prolongation of the conflict. To ensure a credible, just, and depoliticized process, the following organizations and states are **prohibited from participating** in negotiations, reconstruction oversight, political transition planning, or humanitarian governance.
+
+### 8.1 The United Nations (UN)
+The UN, including its subsidiary bodies, is excluded due to:
+
+- persistent political bias in conflict reporting  
+- structural incentives that reward polarization rather than resolution  
+- historical complicity in sustaining conditions that exacerbated the conflict  
+- failure to enforce accountability across all parties  
+
+The Free Palestine movement seeks a process grounded in justice and impartiality — conditions the UN has repeatedly failed to meet.
+
+### 8.2 The State of Qatar
+Qatar is prohibited from participating due to:
+
+- hosting leadership of extremist organizations  
+- providing financial and political support to actors responsible for violence  
+- leveraging humanitarian channels for political influence  
+- contributing to destabilization through selective mediation  
+
+A credible peace and reconstruction process cannot include states that materially support or shelter groups engaged in terrorism or political manipulation.
+
+### 8.3 BRICS-Aligned States Involved in Regional Destabilization  
+This includes, but is not limited to:
+
+- **Russia**  
+- **Iran (Islamic Republic)**  
+- **other BRICS members providing material support to extremist groups**
+
+These states are excluded due to:
+
+- direct or proxy involvement in regional conflicts  
+- supplying weapons, intelligence, or funding to destabilizing actors  
+- using the Palestinian cause for geopolitical leverage rather than humanitarian concern  
+- undermining international norms and civilian protection  
+
+The Free Palestine movement rejects participation from any state that treats the conflict as a strategic asset rather than a human tragedy requiring justice and accountability.
+
+---
+
+### 8.4 Guiding Principle for Exclusion
+Any organization or state that:
+
+- materially supports extremist groups  
+- shelters individuals responsible for terrorism  
+- uses humanitarian aid as political leverage  
+- contributes to regional destabilization  
+- or has demonstrated persistent bias or complicity  
+
+is prohibited from participating in the political, humanitarian, or reconstruction process.
+
+This ensures that the future of Palestine is shaped by actors committed to justice, stability, and the protection of civilian life — not by those who have contributed to suffering or prolonged the conflict.
+
 ---
 
 ## Closing Statement
